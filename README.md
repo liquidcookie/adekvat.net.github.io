@@ -1,0 +1,1 @@
+# adekvat.net.github.io
